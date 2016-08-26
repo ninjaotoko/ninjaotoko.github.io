@@ -1,0 +1,1 @@
+# ninjaotoko.github.io
